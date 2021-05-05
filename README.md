@@ -1,0 +1,2 @@
+# Telki_uzlethaz
+Valami
